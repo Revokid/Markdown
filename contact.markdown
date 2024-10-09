@@ -1,4 +1,6 @@
-# Social Media Profiles
+## **Contact**
+- **Location:** [Etobicoke, Canada]
+
 YouTube : https://www.youtube.com/@revokidvlogs
 
 
